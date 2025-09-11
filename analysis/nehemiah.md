@@ -3,12 +3,15 @@
 
 Current Throughts :
 
-    Nemehiah is a great noble character. He kind of reminds me of Aragon.
+    Nemehiah is a great noble character. He kind of reminds me of Aragorn.
     Unlike other leaders in the bible, we get a glimps of his leadership
     in practice, like him encouraging and inspiring the men of Israel 
     to fight and protect their families.
 
-    This is told from his perspective thought to my understanding.
+    This is told from his perspective though to my understanding.
+    In contrast to David, another great leader who's feats 
+    are told through Samual, where as what he writes describes
+    his highs, lows, and relationship with God through Psalms.
 
 
 
