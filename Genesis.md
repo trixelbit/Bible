@@ -46,6 +46,13 @@ God created 'Firmament' in the waters and allowed it to divide waters from water
 
 ? I'm really not familier with the word firmament. Even the google defintion doesn't provide insight to me on this. I may need to look at the original untranslated word and search from there.
 
+~ The more I look at different translation as well as what comes after.
+This seems to implies earth as a spherical object didn't exist yet, but rather
+everything was very mangled in mist of sorts. 
+The action performed here(I think) actually separates everything out intro discrete groups. 
+
+
+
 
 
 
