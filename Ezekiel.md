@@ -12,11 +12,11 @@ It is Chapter 18.
 
 It describes how the individual is accountable for sin. 
 
-It describes a ritous man who obeys the laws of God.
+It describes a righteous man who obeys the laws of God.
 And says he will live.
 
 Then it describes his son who is the opposite and sins in every way. 
-The Word says he will Die. 
+The Word says he will die. 
 
 Then a describes the son of the unrighteous man. 
 His son does not sin despite the actions of the father. 
@@ -120,14 +120,14 @@ Jesus called for the world to be born again.
 
 ## More Context after more reading.
 
-I completely neglected the start of the Chapter
-which add important framing for this.
+I completely neglected the start of the chapter
+which adds an important framing for this.
 
 This Chapter begins with God telling the people 
-of Israel to stopping saying specific proverb.
+of Israel to stopping saying this specific proverb:
 
-"The Fathers have eaten sour grapes, 
-and the children's teeth are on edge"
+    "The Fathers have eaten sour grapes, 
+    and the children's teeth are on edge" Ezek 18:2
 
 In essence, the people of Israel are saying that the 
 blame for their current circumstances is due to 
