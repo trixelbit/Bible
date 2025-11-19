@@ -1,6 +1,6 @@
 Created: 2025-11-19
 
-
+## Can't Sleep
 
 I'm reading through Ezekiel at 1:04 am.
 
@@ -8,6 +8,7 @@ And I found this chapter that is interesting.
 
 It is Chapter 18.
 
+## Chapter 18 
 
 It describes how the individual is accountable for sin. 
 
@@ -34,9 +35,9 @@ And likewise, that the righteous who fall into sin will die.
 
 This chapter concludes by highlighting how God does not 
 delight in the death of the wicked. 
-And called for the Israelites to leave the sin 
+And called for the Israelites to leave sin 
 and importantly, to put on a new heart and spirit. 
-And that they will be judges by their individual actions.
+And that they will be judged by their individual actions.
 
 
 ## Points of critical thought
@@ -78,7 +79,7 @@ In works based system, there would be this moral bank "balance",
 where all negative and positive actions are summed up. 
 And then, the difference ultimately determines your state. 
 
-But here, that's thrown out. 
+But here, that's non-existent. 
 
 A person who turns from sin, the verse 
 states all past misdeeds will be discarded. 
