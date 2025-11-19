@@ -117,6 +117,48 @@ the put on a new heart and spirit.
 
 Jesus called for the world to be born again.
 
+## More Context after more reading.
+
+This Chapter begins with God telling the people 
+of Israel to stopping saying specific proverb.
+
+"The Fathers have eaten sour grapes, 
+and the children's teeth are on edge"
+
+In essence, the people of Israel are saying that the 
+blame for their current circumstances is due to 
+the sins of their fathers.
+
+This is not a surpising thing since part of the old covenant 
+was that sin of the father could extend multiple 
+generations.
+
+But God say this is no the case. 
+The people of Israel can not use that as excuse because 
+each of them are accountable for their own actions.
+Not their fathers. 
+This chapter highlights the individuals so much 
+because it's making a point to show 
+each person is accountable for their own actions.
+
+This also sets the stage for the Gospel since 
+what Jesus emphasizes is that not only are 
+we accountable for our own sins, but by our 
+own works we fail and fall short. 
+
+### New Questions
+This makes me ask new questions now though. 
+Where these people part of the new covenant, 
+even though they were before the time of Jesus?
+Like humanity had already been racking up a tab 
+that he eventually paid?
+But then there are things that are diffent after 
+his resurection, like him sending the Holy Spirit 
+onto earth. 
+
+It's late right now but this is really interesting.
+
+
 
 ## Questions that need answering for better analysis
 
