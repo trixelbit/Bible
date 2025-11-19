@@ -39,7 +39,7 @@ and importantly, to put on a new heart and spirit.
 And that they will be judges by their individual actions.
 
 
-## Points of the critical thought
+## Points of critical thought
 
 Verse 22 says that none of the things they did will be remembered. 
 Because of the righteous deeds, they will live. 
@@ -90,9 +90,9 @@ states all past misdeeds will be discarded.
 Inversely, the person who did good but turns to sin, 
 non of their goods will matter:
 
-    "But if a righteous peson thurns from their 
+    "But if a righteous peson turns from their 
     righteousnesss and commits sin  and does the 
-    same detestable things the whicked person does, 
+    same detestable things the wicked person does, 
     will they live?
     None of the righteous things that person has
     done will be remembered." Ezek 18:24
@@ -118,6 +118,9 @@ the put on a new heart and spirit.
 Jesus called for the world to be born again.
 
 ## More Context after more reading.
+
+I completely neglected the start of the Chapter
+which add important framing for this.
 
 This Chapter begins with God telling the people 
 of Israel to stopping saying specific proverb.
