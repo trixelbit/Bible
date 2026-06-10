@@ -18,6 +18,8 @@ Passages Affirming Jesus "God":
         calling him the Son of God.
             
         ? Look into what they meant by "messiah".
+
+    John 8:58
     
 
 
